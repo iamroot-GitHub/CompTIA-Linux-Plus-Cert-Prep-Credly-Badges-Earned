@@ -1,1 +1,1 @@
-# Earned-CompTIA-Linux-Cert-Prep-Credly-Badges
+# Earned-CompTIA-Linux-Plus-Cert-Prep-Credly-Badges
