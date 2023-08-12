@@ -1,1 +1,1 @@
-# Earned CompTIA Linux+ Cert Prep Credly Badges
+CompTIA Linux+ Cert Prep Credly Badges Earned
